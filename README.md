@@ -1,2 +1,0 @@
-# Nabakishore.github.io
-Profile
